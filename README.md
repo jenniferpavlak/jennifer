@@ -1,1 +1,4 @@
 # jennifer
+estudante.
+liderança.
+🤍
